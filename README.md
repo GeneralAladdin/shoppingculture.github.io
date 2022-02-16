@@ -1,0 +1,1 @@
+# shoppingculture.github.io
